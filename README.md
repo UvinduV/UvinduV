@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **uvindusanketh470@gmail.com**
 
-<img align="right" alt="coding" width="400" src="https://indcatech.com/wp-content/uploads/2023/11/sardonyx-softwaredevelopment001.gif">
+<img align="right" alt="coding" width="400" src="https://github.com/user-attachments/assets/8fe48648-79c5-4a32-afb7-30ee4bb7fca1">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
