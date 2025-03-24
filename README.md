@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **uvindusanketh470@gmail.com**
 
-<img align="right" alt="coding" width="400" src="https://github.com/user-attachments/assets/8fe48648-79c5-4a32-afb7-30ee4bb7fca1">
+<img align="right" alt="coding" width="300" src="https://i.pinimg.com/originals/bc/1c/5c/bc1c5caa5be55e8a602fd5ec390e8fd0.gif">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
